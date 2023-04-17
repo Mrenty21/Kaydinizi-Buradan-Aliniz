@@ -1,3 +1,3 @@
 # Kaydinizi-Buradan-Aliniz
 
-Bana-Cıktiyi-Aliniz
+Bana-Cıktiyi-Alitiniz
